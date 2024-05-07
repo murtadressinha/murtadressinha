@@ -10,5 +10,6 @@ Você pode entrar em contato comigo 📫
 alurastartestudante@email.com
 
 @alurastartestudante
-![![Uploading 2016-07-27-ezgif.com-resize-2.gif…]()
+![![VhdI](https://github.com/murtadressinha/murtadressinha/assets/169157356/ea5fc5cc-be3e-40ec-ae05-a2a226eb7d04)
 ](link)
+
